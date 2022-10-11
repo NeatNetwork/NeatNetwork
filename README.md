@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @NeatNetwork
+- 👀 I’m interested in Coding, Discord and Minecraft
+- 🌱 I’m currently learning Russian
+- 💞️ I’m looking to collaborate on System options
+- 📫 You Can contact me at support@neatnet.org
